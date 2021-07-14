@@ -21,5 +21,5 @@ blueknight is a random dude that likes exploring and tried out github.
 keep in mind that i have no idea what this is so random stuff are everywhere.
 
 [youtube channel that has no content and has subs for no reason](https://www.youtube.com/channel/UCyv7ZBYeevY6OwautkawZjQ) 
-```
+
 
