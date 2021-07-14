@@ -1,10 +1,10 @@
 ## Welcome to my site.
 just made this out of pure boredom.
 
-# test xd
-dont mind me testing some stuff 
+# discord tag
+blueknight#5428,blueknight#2401.
 
-## who the fuck is blueknight
+## who  is blueknight?
 blueknight is a random dude that likes exploring and tried out github.
 ### cool haxxerman background 
 
@@ -14,12 +14,12 @@ blueknight is a random dude that likes exploring and tried out github.
 1. Numbered
 2. List
 
-**Bold** and _Italic_ and `Code` text
+**test** and _test2_ and `haxxer man stuff test` text
 
 
 
 keep in mind that i have no idea what this is so random stuff are everywhere.
 
-[test](https://www.youtube.com/channel/UCyv7ZBYeevY6OwautkawZjQ) 
+[youtube channel that has no content and has subs for no reason](https://www.youtube.com/channel/UCyv7ZBYeevY6OwautkawZjQ) 
 ```
 
