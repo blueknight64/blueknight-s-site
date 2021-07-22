@@ -20,11 +20,10 @@ blueknight is a random dude that likes exploring and tried out github.
 
 keep in mind that i have no idea what this is so random stuff are everywhere.
 
-[youtube channel that has no content and has subs for no reason](https://www.youtube.com/channel/UCyv7ZBYeevY6OwautkawZjQ)
 [check sm64js very cool game](https://sm64js.com)
 
 [![image](https://user-images.githubusercontent.com/75827284/126630413-ff05ab04-b954-4116-b3ef-d7c35b133051.jpeg)
-](https://www.youtube.com/channel/UCyv7ZBYeevY6OwautkawZjQ)
+](https://www.youtube.com/channel/UCyv7ZBYeevY6OwautkawZjQ) check my yt channel with no vids and 7 subs
 
 
 
