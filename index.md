@@ -1,5 +1,6 @@
 ## Welcome to my site.
 just made this out of pure boredom.
+i do dumb, intelligable stuff sometimes, but eh whatever.
 
 # discord tag
 blueknight#5428,blueknight#2401.
@@ -15,7 +16,7 @@ blueknight is a random dude that likes exploring and tried out github. you might
 [![image](https://user-images.githubusercontent.com/75827284/126630413-ff05ab04-b954-4116-b3ef-d7c35b133051.jpeg)
 ](https://www.youtube.com/channel/UCyv7ZBYeevY6OwautkawZjQ) 
 
-check out my yt channel with literally no vids and somehow 7 subs
+check out my yt channel with literally no vids and somehow 9 subs
 
 ![image](https://user-images.githubusercontent.com/75827284/145768279-90e1e903-da70-4710-a3a0-8c2297161e9c.png)](https://twitter.com/Blueknightexis1)
 
