@@ -18,10 +18,10 @@ blueknight is a random dude that likes exploring and tried out github. you might
 
 check out my yt channel with literally no vids and somehow 9 subs
 
-[twitter account](https://twitter.com/Blueknightexis1) (**warning: troll accounts have been invading me recently, and i do dumb shit sometimes, so be warned if you are about to follow me**)
+[twitter account](https://twitter.com/Blueknightexis1) (**warning:i do dumb shit sometimes, so be warned if you are about to follow me**)
 
 
-[reddit account](https://www.reddit.com/user/blueknightreddit) (i also do dumb shit there)
+[reddit account](https://www.reddit.com/user/blueknightreddit) (**i also do dumb shit there)
 
 
 
