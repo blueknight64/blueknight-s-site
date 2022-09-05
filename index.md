@@ -21,8 +21,8 @@ check out my yt channel with SOME videos and somehow 10 subs
 [twitter account](https://twitter.com/Blueknightexis1) (**warning:got deleted for absolutely no reason, unfortunately**)
 
 
-(![image](https://user-images.githubusercontent.com/75827284/188364136-8f40db3e-19bf-4436-9036-8dc454e621ec.png))
-]((https://www.reddit.com/user/blueknightreddit) 
+![image](https://user-images.githubusercontent.com/75827284/188364136-8f40db3e-19bf-4436-9036-8dc454e621ec.png)
+(https://www.reddit.com/user/blueknightreddit) 
 
 i do dumb shit in reddit too
 
