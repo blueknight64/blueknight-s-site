@@ -27,8 +27,8 @@ check out my yt channel with SOME videos and somehow 10 subs
 i do dumb shit in reddit too
 
 
+play this while you're here i guess
 
-
-
+<iframe allowtransparency="true" width="485" height="402"  src="(https://turbowarp.org/736938857/embed?autostart=false"  frameborder="0" allowfullscreen></iframe>
 
 
