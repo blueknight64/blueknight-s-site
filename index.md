@@ -29,5 +29,5 @@ i do dumb shit in reddit too
 
 play this while you're here i guess
 
-<iframe allowtransparency="true" width="485" height="402"  src="//scratch.mit.edu/projects/736938857/embed?autostart=false"  frameborder="0" allowfullscreen></iframe>
+<iframe allowtransparency="true" width="485" height="402"  src="/https://turbowarp.org/736938857/embed?autostart=false"  frameborder="0" allowfullscreen></iframe>
 
